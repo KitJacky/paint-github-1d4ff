@@ -1,1 +1,0 @@
-# paint-github-1d4ff
